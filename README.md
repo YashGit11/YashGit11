@@ -1,4 +1,3 @@
 Making the best out of the net and devices I have.
 
-
-New Guy
+Can't wait to crack my head sooner or later.
